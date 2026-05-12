@@ -1,4 +1,4 @@
-#  
+#  Experience blox fruits like never before with secure blox fruits Scripts, the #1 Script. Includes esp and auto-collect for unbeatable performance.
 
 
 
